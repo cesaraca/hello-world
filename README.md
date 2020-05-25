@@ -8,5 +8,5 @@ para a desigualdade das transferências monetárias diretas do e para o Estado b
 >As transferências para o Estado são os tributos diretos. 
 >Os resultados indicam que o Estado contribui diretamente para uma grande fração da desigualdade.
 
-[Link do Artigo] (https://www.ipea.gov.br/portal/index.php?option=com_content&view=article&id=18638)
+[Link do Artigo](https://www.ipea.gov.br/portal/index.php?option=com_content&view=article&id=18638)
 
